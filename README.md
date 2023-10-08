@@ -1,5 +1,5 @@
 # Resume
-Attached my PDF Resume (CV), last update: Set/2023
+Attached my PDF Resume (CV), last update: Oct/2023
 
 Linkedin: https://www.linkedin.com/in/leandrosouzadba
 
