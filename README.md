@@ -1,6 +1,6 @@
 # Resume (Curriculum Vitae)
 
-Attached my PDF Resume (CV), last update: Mar/2026, file: Resume-Leandro-R-Souza_2026.pdf
+Attached my PDF Resume (CV), last update: May/2026, file: Resume-Leandro-R-Souza_2026.pdf
 
 Em Português, atualizado em: Maio/2025, arquivo: CV-Leandro-R-Souza.pdf
 
